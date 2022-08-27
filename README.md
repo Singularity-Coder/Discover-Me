@@ -1,2 +1,2 @@
 # Discover-Me
-Let the world discover the star in you!
+Let the world see the star in you!
